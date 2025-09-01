@@ -1,1 +1,0 @@
-https://10fastfingers.com/typing-test/indonesian
